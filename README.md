@@ -1,3 +1,3 @@
 # lgu6P
 
-hellow dkdkdkdkdkdk
+정리
